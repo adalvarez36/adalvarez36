@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adalvarez36
 - 👀 I’m interested in learning anything.
-- 🌱 I’m currently learning coding.
+- 🌱 I’m currently learning coding and building various pages.
 - 💞️ I’m looking to collaborate on any projects.
 - 📫 How to reach me alexiaalvarez36@gmail.com
 
